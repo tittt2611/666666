@@ -27,7 +27,7 @@
 📌 播放流畅：无广告弹窗，不卡顿，在线播放秒开
 
 🚫 本站所有资源仅供网友学习交流，来自互联网公开平台，不存储任何视频内容，请合理访问，遵守当地法律法规。
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/tittt2611/666666 ）</span>
 
 
 
